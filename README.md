@@ -49,5 +49,3 @@ We’d love to hear your thoughts and ideas as we grow! 💡
 ---
 
 ## 💙 **Thanks for Checking Out Familink.ai!**  
-
-Got feedback? Interested in contributing? Let’s build something meaningful together! 🚀  
